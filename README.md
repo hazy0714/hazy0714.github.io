@@ -1,0 +1,1 @@
+# hazy0714.github.io
